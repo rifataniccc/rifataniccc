@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rifataniccc
+- 👀 I’m interested in design, psychology and ai ethics
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on any project that has a Human-Centred approach. 
+- 📫 How to reach me https://rifatanik.com/
